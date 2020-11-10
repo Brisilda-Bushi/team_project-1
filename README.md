@@ -13,4 +13,4 @@ Hello there, My name is Rahmonjon Ibragimov,
  I am 28 years old and come from Uzbekistan
  and I have been living in different countries for the last 10 years.
  I am married and have 2,5 years old daughter.
- I love riding bicycle and learning new thin
+ I love riding bicycle and learning new things
